@@ -1,0 +1,1 @@
+![](https://dyfx.files.wordpress.com/2011/11/statsjerks2.jpg)

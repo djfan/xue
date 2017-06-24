@@ -1,0 +1,1 @@
+![](http://media02.hongkiat.com/programming-jokes/joke-no-sql.jpg)
